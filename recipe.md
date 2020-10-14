@@ -1,0 +1,1 @@
+First melt the chocolate and the butter in a bowl(a big enough size), mix sugar while chocolate and butter are melting, mix he eggs/yogurt and vanilla to the bowl, mix flour and coco powder, then bake
